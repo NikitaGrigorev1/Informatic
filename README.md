@@ -1,0 +1,2 @@
+# Informatic
+From studing
